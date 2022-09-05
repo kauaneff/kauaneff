@@ -1,4 +1,4 @@
--ola eu sou a kauane
-- 👀 eu estou enterresada em novas linguagens 
+-olá eu sou a kauane
+- 👀 eu estou interresada em novas linguagens 
 - 🌱 estou aprendendo a programar recentemente
 - 💞meu email de contato e fragoso.kauane@escola.pr.gov.br
